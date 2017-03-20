@@ -1,2 +1,3 @@
 # ProyectoRemoto1
-Pruebas varias y repaso
+Pruebas varias y reperas
+A ver lo que pasa que te rebientooo
